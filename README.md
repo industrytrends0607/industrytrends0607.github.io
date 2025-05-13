@@ -1,1 +1,0 @@
-# industrytrends0607.github.io
